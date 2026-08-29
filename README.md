@@ -57,3 +57,14 @@
 **Congratulations !! you have succesfully installed and cracked Microsoft Office 2022 on your Windows Operating System.<hr>
 
 <h1 align="center"><img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Travel%20and%20places/Glowing%20Star.png" alt="Glowing Star" width="25" height="25" /> Starred the Repositories & thanks to us for this <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Travel%20and%20places/Glowing%20Star.png" alt="Glowing Star" width="25" height="25" /></h1>
+
+---
+
+Cooked by aashuu ✦ (Ashutosh Kumar)<br>
+Founder of [2C Labs](https://www.2clabs.tech)
+
+I build tech businesses through SaaS products across every layer of the internet ( Web2 ▪︎ Web3 ▪︎ AI-native ▪︎ Infrastructure )
+
+Connect here:<br>
+Website [www.aashuu.me](https://www.aashuu.me) ✦  𝕏 [@warrioraashuu](https://x.com/warrioraashuu) ✦  LinkedIn [@warrioraashuu](https://www.linkedin.com/in/warrioraashuu/)
+
